@@ -1,2 +1,0 @@
-# PAVAN_MOODY
-Resume
